@@ -15,12 +15,9 @@ At this time, TEC (the Technical Executive Committee of the Students' Union) was
 
 NTG (the Nottingham Theatre Group) was a separate body, which as far as I recall did not receive grant funding from the Students' Union, whose purpose was to present an annual revue at the Edinburgh Festival Fringe. These shows were developed and previewed in New Theatre. NTG would typically rent a venue in Edinburgh and fit it out as a temporary theatre, sub-letting the space and equipment to other Fringe groups such as Durham Student Theatre or Bristol Revunions. The SPD Manager also served as the Technical Director of NTG.
 
-Student Theatre at the University continued in various forms, increasing through the New Theatre on campus.
-
-
 ## Nottingham Everyman Club
 
-Nottingham's Everyman Club was formed in 1958, to encourage students and local people int he city, who were interested in theatre, to collaborate on productions. The club had some notable successes in the 1960s.
+Nottingham's Everyman Club was formed in 1958, to encourage students and local people in the city, who were interested in theatre, to collaborate on productions. The club had some notable successes in the 1960s.
 
 ![Old Stage](http://photos.newtheatre.org.uk/New-Theatre-Past/i-MMZNR6c/0/M/382108203_6cf1e5832e_o-M.jpg){: .right}{: .page-photo}
 
@@ -36,8 +33,8 @@ The New Theatre was originally housed in the Archaeology and Classics building o
 
 ![Studio A](http://photos.newtheatre.org.uk/201314/Seating-Appeal-2013/i-zB8NQLT/0/M/35%20Matthew%20closing-M.jpg){: .right}{: .page-photo}
 
-In 2001 an extended foyer was added to the building, following a donation from an alumnus of the University.
+In 2001 an extended foyer was added to the building, following a donation from an alumnus of the Theatre.
 
-Until recently, the New Theatre was contained within the Archaeology and Classics building. The summer of 2012 saw an extensive redevelopment of the building housing the New Theatre. The Archaeology and Classics building was demolished from the site, leaving the New Theatre as its own freestanding building. Parts of the old building were retained, and repurposed as new rehearsal rooms, a studio space, storage rooms and a new constume cupboard. The foyer was also significantly extended.
+In the summer of 2012, the Archaeology and Classics building was demolished which saw an extensive redevelopment of the building housing the New Theatre. This left the New Theatre as its own freestanding building. Parts of the old building were retained and repurposed as new rehearsal rooms/studio spaces, storage rooms and a new constume cupboard. The foyer was also significantly extended. Along with this, a fundraising campaign also allowed the technical parts of the theatre to be modernised significantly.
 
 In 2012 the committee voted to alter the name of the theatre from "The New Theatre" to "The Nottingham New Theatre".
